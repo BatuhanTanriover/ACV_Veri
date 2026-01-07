@@ -1,1 +1,1 @@
-İleri Veri Analitiği - Case Studies
+İleri Veri Analitiği - Case Studiessasas
